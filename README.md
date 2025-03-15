@@ -1,4 +1,4 @@
-Hi, I'm Stanislava Zavialova (or just Stacey).
+Hi, I'm Stanislava Zavialova (or just Stanley).
 
 ### 💫 About Me:
 ✍️ Teaching children computer graphics, programming and game development<br>
